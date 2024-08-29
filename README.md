@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @PhantomEnigma
-- 👀 I’m interested in Learning new thiings, Watching Anime
+- 👀 I’m interested in Learning new things, Watching Anime
 - 🌱 I’m currently learning Nothing.
-- 💞️ I’m looking to collaborate on None.
+- 💞️ I’m not looking to collaborate.
 - 📫 How to reach me @PhantomEnigma on Telegram
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I am also a Human
